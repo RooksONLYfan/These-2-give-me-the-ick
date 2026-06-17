@@ -13,4 +13,6 @@ joking or not, bit weird youre calling them that meanwhile calling yourselves "c
 if they SOMEHOW see this: first, good. Second, we still havent forgiven you for what u did to @///theliveandthedead, shame on yourselves.
 
 Will update this btw .
+
+
 . Lilia
