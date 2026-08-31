@@ -1,7 +1,4 @@
-# Deleting soon //
-THOSE 2 people.
-
-ig noting down everything i see of them
+noting down everything i see of them
 
 <img width="337" height="107" alt="Screenshot 2026-06-17 19 42 52" src="https://github.com/user-attachments/assets/75893eed-32cb-4eff-8ad0-524f76a7bcbc" />
 
@@ -21,10 +18,11 @@ I feel atp they know abt this,, POSSIBLY which is good, you should. you BOTH kno
 
 ---
 
-Update. > 11/7/26 
-Im dropping this, you two are pathetic. youre not gonna account for your actions, so why should i keep doing this?
-i dont care if this was MONTHS back, you didnt do it then, and youre STILL not doing it now. Dont expect another update.
-
----
-
 . Lilia + Epel
+
+
+Update 31/8:
+
+We're so back gang yayyay ^_^
+
+Theyre like.. REAAAAALLLYYY dry too, like it must get boring only talking to 1 other person. i get not knowing randoms coming up 2 you but like.. it doesnt hurt to at least talk to them normally, does it? or hide/ignore them? idk.. -.-; -mr calloway
