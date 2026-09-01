@@ -27,3 +27,6 @@ Update 31/8:
 We're so back gang yayyay ^_^
 
 Theyre like.. REAAAAALLLYYY dry too, like it must get boring only talking to 1 other person. i get not knowing randoms coming up 2 you but like.. it doesnt hurt to at least talk to them normally, does it? or hide/ignore them? idk.. -.-; -mr calloway
+
+
+
